@@ -5,7 +5,6 @@ untitled.html
 s4airpi7rto.tex
 dr3dcqp1tno.html
 dcn5in6bkh8.html
-figures/cannabisactive
 0lt4lc01q1.html
 786ep6kjdb.html
 mm5t63m11jg.html
